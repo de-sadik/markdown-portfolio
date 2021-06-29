@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. :heart: Programing
+1. Always happy :smile:
